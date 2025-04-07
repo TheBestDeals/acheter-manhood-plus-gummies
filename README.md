@@ -20,7 +20,7 @@
 
 💥 **-50% sur le site officiel dès maintenant !**  
 🎁 **Code Promo appliqué automatiquement**  
-👉 **[Commandez ici avec -50%](https://manhood-fr.com/)**
+👉 **[Commandez Manhood Plus Gummies ici avec -50%](https://manhood-fr.com/)**
 
 🚀 Livraison rapide et discrète  
 🔒 Paiement sécurisé  
