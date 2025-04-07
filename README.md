@@ -34,8 +34,3 @@
 
 📌 Faites comme eux, essayez **Manhood Plus Gummies** et reprenez le pouvoir sur votre énergie 💥  
 👉 [https://manhood-fr.com/](https://manhood-fr.com/) (Code Promo -50% inclus)
-
----
-
-💬 **Tag un ami qui a besoin d’un coup de boost**  
-💪 #ManhoodPlus #manhoodplusgummies #manhood #performancehomme #testosteronenaturelle #codepromo #france #belgique #suisse #luxembourg
